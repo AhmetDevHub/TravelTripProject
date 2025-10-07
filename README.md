@@ -1,0 +1,13 @@
+<img width="1902" height="903" alt="Ekran görüntüsü 2025-10-07 031032" src="https://github.com/user-attachments/assets/4e46f2a8-23f3-4032-84b1-0688ae050cdb" />
+<img width="1892" height="907" alt="Ekran görüntüsü 2025-10-07 031932" src="https://github.com/user-attachments/assets/ac36cfff-be4e-41c2-98cc-658db85b8949" />
+<img width="1916" height="913" alt="Ekran görüntüsü 2025-10-07 031945" src="https://github.com/user-attachments/assets/622dbe53-5a34-44e1-a37c-97de0ae2b822" />
+<img width="1894" height="909" alt="Ekran görüntüsü 2025-10-07 031958" src="https://github.com/user-attachments/assets/4e95d09d-6d30-4ca0-a726-6f46bd547d86" />
+<img width="1919" height="909" alt="Ekran görüntüsü 2025-10-07 032112" src="https://github.com/user-attachments/assets/44a86a4e-ce4d-4e21-a220-0ba891f11400" />
+<img width="1898" height="910" alt="Ekran görüntüsü 2025-10-07 032128" src="https://github.com/user-attachments/assets/5ad15014-9261-438f-bae4-e9f4b0275d2b" />
+<img width="1897" height="906" alt="Ekran görüntüsü 2025-10-07 033240" src="https://github.com/user-attachments/assets/1fe5673a-9eb9-4bdf-ba18-68350f8a28bc" />
+<img width="1895" height="906" alt="Ekran görüntüsü 2025-10-07 033253" src="https://github.com/user-attachments/assets/0de3ec36-2112-41a4-8a76-2e98efcea5f8" />
+<img width="1895" height="667" alt="Ekran görüntüsü 2025-10-07 033309" src="https://github.com/user-attachments/assets/c9348983-865b-497d-9eed-0bc457ea7dc9" />
+<img width="1903" height="916" alt="Ekran görüntüsü 2025-10-07 033328" src="https://github.com/user-attachments/assets/cd941672-e46f-4cfe-9ec3-3dafddb19eee" />
+<img width="1898" height="910" alt="Ekran görüntüsü 2025-10-07 033347" src="https://github.com/user-attachments/assets/a3196a3d-7d08-4041-92ed-a54c614bdfb7" />
+<img width="1898" height="899" alt="Ekran görüntüsü 2025-10-07 033437" src="https://github.com/user-attachments/assets/c7ad263d-fe20-4201-b17b-2fd2cf479a8b" />
+<img width="1898" height="912" alt="Ekran görüntüsü 2025-10-07 040305" src="https://github.com/user-attachments/assets/fb7691a0-4c0d-42dc-98dd-ce506e254c4b" />
